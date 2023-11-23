@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Teja
+- 👀 I’m interested in Tech,A.i,Hacking,Programming.
+- 🌱 I’m currently learning A.i And Programing. 
+- 💞️ I’m looking to collaborate on Tech Enthusiast .
